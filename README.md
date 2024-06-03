@@ -12,4 +12,5 @@ ultilizo esse espaço para organização e compartilhamento dos meus projetos de
 
 @anagb.gmail
 
-https://media.tenor.com/CzaHhPyIR8gAAAAM/rosy00.gif
+![image](https://github.com/Anagabi19/Anagabi19/assets/170945191/f3448bc6-1639-4dbd-9cfd-82daa96a37f2)
+
