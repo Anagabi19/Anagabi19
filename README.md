@@ -12,4 +12,5 @@ ultilizo esse espaço para organização e compartilhamento dos meus projetos de
 
 @anagb.gmail
 
-https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8
+![image](https://github.com/Anagabi19/Anagabi19/assets/170945191/fc7f27c8-5703-40e6-a077-2c59c1139fcc)
+
